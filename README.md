@@ -8,5 +8,5 @@
 ![](https://osu.ppy.sh/ss/18026937/cd81)
 # [bees](https://b.catgirlsare.sexy/hTge49mh_EnY.osk)
 ![](https://osu.ppy.sh/ss/18026939/ec72)
-# [Rectygon](https://b.catgirlsare.sexy/hTge49mh_EnY.osk)
+# [Rektygon](https://b.catgirlsare.sexy/hTge49mh_EnY.osk)
 ![](https://osu.ppy.sh/ss/18026942/8359)
