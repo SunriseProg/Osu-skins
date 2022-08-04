@@ -10,3 +10,5 @@
 ![](https://osu.ppy.sh/ss/18026939/ec72)
 # [Rektygon](https://disk.yandex.ru/d/JqXJReC_fm2CXA)
 ![](https://osu.ppy.sh/ss/18026942/8359)
+# [Bubbleman 2017-10-13](https://disk.yandex.ru/d/AF6O6e9BJZF9Gg)
+![](https://osu.ppy.sh/ss/18026964/6316)
