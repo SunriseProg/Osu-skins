@@ -1,7 +1,7 @@
 # Tamadori osu skins
 
 # [Aristia+mrekk](https://disk.yandex.ru/d/CgyDDeFUXC-RZQ)
-![]((https://cdn.discordapp.com/attachments/1169248722903896235/1186627249668096060/screenshot009.jpg?ex=6593efbe&is=65817abe&hm=15bbd40955b4340568ed128bb7bed836dfcc38cd49eb397940a1ec0acb92095a&)
+![](https://cdn.discordapp.com/attachments/1169248722903896235/1186627249668096060/screenshot009.jpg?ex=6593efbe&is=65817abe&hm=15bbd40955b4340568ed128bb7bed836dfcc38cd49eb397940a1ec0acb92095a&)
 # [Lain](https://disk.yandex.ru/d/JboIuLHvJWHgjQ)
 ![](https://cdn.discordapp.com/attachments/1169248722903896235/1186627261743513610/screenshot010.jpg?ex=6593efc1&is=65817ac1&hm=6b0a299324be3c906f2ee37ea685a7c2a887f28144015dfca54a8277ebd69da6&)
 # [Vaxei+5560](https://disk.yandex.ru/d/1wrfuzfJItLPfw)
